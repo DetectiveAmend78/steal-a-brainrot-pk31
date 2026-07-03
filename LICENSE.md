@@ -1,4 +1,4 @@
-# 
+# steal a brainrot elite Scripts is the best steal a brainrot Script, featuring unlimited stamina and auto-collect. Safe and powerful for all your
 
 
 
